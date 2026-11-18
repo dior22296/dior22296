@@ -29,5 +29,6 @@ I design and deploy websites, AI chatbots, AI receptionists, and social media sy
 ## Work with me
 🌐 Portfolio: https://solomon-bradshaw.netlify.app/
 📞 (407) 448-6192
+📧 Email: pinnacletechorlando@gmail.com
 
 *Innovation Beyond Boundaries.*
